@@ -1,5 +1,6 @@
-### Hi there 👋
 
+### Hi there 👋
+![](https://www.gamereplays.org/community/uploads/post-46096-1182146910.jpg)
 <!--
 **MyShoesHaveSplinters/MyShoesHaveSplinters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
